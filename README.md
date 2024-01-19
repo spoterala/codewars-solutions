@@ -1,0 +1,1 @@
+My Codewars solutions from an account: https://www.codewars.com/users/spoterala
